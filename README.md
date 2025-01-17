@@ -1,1 +1,2 @@
 # nicole2706.github.io
+Hola soy Nicole Alvarez MAtos, estudio la carrera de Ingeniería en Ciencias Informáticas en la Universidad de Ciencias Informáticas. Me gusta mucho pasar tiempo en la escuela con mis amigos.
